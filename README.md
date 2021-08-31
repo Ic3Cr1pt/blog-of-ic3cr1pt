@@ -1,1 +1,1 @@
-# blog-of-ic3cr1pt
+# Ic3Cr1pt's Blog
